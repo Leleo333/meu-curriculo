@@ -19,6 +19,7 @@ ___
 E com todos esses componentes que estou cursando, estou seguindo o meu sonho e sou um entusiasta nesses componentes.
 
 ![programador](https://media2.giphy.com/media/xT9IgzoKnwFNmISR8I/giphy.gif?cid=790b76115604dfb2d768d30fa06a74e161a5212edcca44a4&rid=giphy.gif&ct=g).![programador](https://media3.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif)
-![Stormtroopocat](https://www.
-https://user-images.githubusercontent.com/110108140/191009926-39504f9c-7120-493e-91f1-6862f2168435.mp4
+
+https://user-images.githubusercontent.com/110108140/191010132-0859d72b-9387-4e8c-af26-c5ee380e08dd.mp4
+
 
